@@ -2,4 +2,4 @@
 
 강의자료 : https://drive.google.com/open?id=12iMUo3OjiWrjBQJkPrdXCnahhpC_CbIG
 
-문의 : 김선우, seonwookim@gist.ac.kr
+문의 : 김선우, 010-8815-7426, seonwookim@gist.ac.kr
